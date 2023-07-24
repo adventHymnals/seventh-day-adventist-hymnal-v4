@@ -1,0 +1,14 @@
+SDAH:
+  name: Seventh-day Adventist Hymnal
+  abbvr: SDAH
+  year: '1985'
+  numSongs: '695'
+  lang: en
+  compiler: The Hymnal Committee
+  link: 'seventh-day-adventist-hymnal'
+  gtLink: adventhymnals/seventh-day-adventist-hymnal-csycms
+  sheets:
+    img: https://raw.githubusercontent.com/GospelSounders/SDAHData/master/SDAHymnalsPhotos
+  music:
+    mid:
+    - https://raw.githubusercontent.com/GospelSounders/SDAHData/master/SDAHymnalsMidiExtracted
