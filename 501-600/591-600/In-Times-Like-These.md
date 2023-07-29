@@ -1,0 +1,32 @@
+
+## 593.  593. In Times Like These
+[edit](https://docs.google.com/document/d/1c6FG6lm5mcna2waoOHb13I9jwMkdcPLk/edit?mode=html)
+
+
+
+
+
+
+    1.
+    In times like these you need a Savior,
+    In times like these you need and anchor;
+    Be very sure, be very sure Your anchor holds and grips the Solid rock!
+    This Rock is Jesus, Yes, He’s the One;
+    This Rock is Jesus, The only One!
+    Be very sure, be very sure Your anchor holds and grips the Solid rock!
+
+    2.
+    In times like these you need the Bible,
+    In times like these O be not idle;
+    Be very sure, be very sure Your anchor holds and grips the Solid rock!
+    This Rock is Jesus, Yes, He’s the One;
+    This Rock is Jesus, The only One!
+    Be very sure, be very sure Your anchor holds and grips the Solid rock!
+
+    3.
+    In times like these I have a Savior,
+    In times like these I have an anchor
+    I’m very sure, be very sure Your anchor holds and grips the Solid rock!
+    This Rock is Jesus, Yes, He’s the One;
+    This Rock is Jesus, The only One!
+    I’m very sure, be very sure Your anchor holds and grips the Solid rock!

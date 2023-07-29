@@ -1,0 +1,38 @@
+
+## 262.  '262. Sweet, Sweet Spirit'
+[edit](https://docs.google.com/document/d/1no%2DraaC%2D0ofo%2D3BtTNV9QCIZGusOGnex/edit?mode=html)
+
+
+
+
+
+
+    1.
+    There’s a sweet, sweet spirit in this place,
+    And I know that it’s the spirit of the Lord;
+    Sweet Holy Spirit,
+    Sweet Heavenly Dove,
+
+    2.
+    Stay right here with us,
+    Filling us with Your love,
+    And for these blessings
+    We lift our hearts in praise,
+    Without a doubt we’ll know
+    That we have been revived
+    When we shall leave this place.
+
+    3.
+    There are sweet expressions on each face,
+    And I know they feel the presence of the Lord.
+    Sweet Holy Spirit,
+    Sweet Heavenly Dove,
+
+    4.
+    Stay right here with us,
+    Filling us with Your love,
+    And for these blessings
+    We lift our hearts in praise,
+    Without a doubt we’ll know
+    That we have been revived
+    When we shall leave this place.

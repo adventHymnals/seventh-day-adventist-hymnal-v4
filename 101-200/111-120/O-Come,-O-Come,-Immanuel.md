@@ -1,0 +1,45 @@
+
+## 115.  '115. O Come, O Come, Immanuel'
+[edit](https://docs.google.com/document/d/1qY%2D5LIPCqzsFGDyeCLCFe%2DFyLeShfvSk/edit?mode=html)
+
+
+
+
+
+
+    1.
+    O come, O come, Emmanuel,
+    And ransom captive Israel,
+    That mourns in lonely exile here
+    Until the Son of God appear.
+
+
+    Refrain:
+    Rejoice! Rejoice!
+    Emmanuel shall come to thee,
+    O Israel.
+
+
+    2.
+    O come, Thou Wisdom from on high,
+    And order all things far and night;
+    To us the path of knowledge show,
+    And cause us in her ways to go.
+
+
+    Refrain:
+    Rejoice! Rejoice!
+    Emmanuel shall come to thee,
+    O Israel.
+
+    3.
+    O come, Desire of nations, bind
+    In one the hearts of all mankind;
+    Bid Thou our sad divisions cease,
+    And be Thyself our King of Peace.
+
+    Refrain:
+    Rejoice! Rejoice!
+    Emmanuel shall come to thee,
+    O Israel.
+

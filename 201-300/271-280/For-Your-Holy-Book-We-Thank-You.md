@@ -1,0 +1,40 @@
+
+## 277.  277. For Your Holy Book We Thank You
+[edit](https://docs.google.com/document/d/1ipDDi1_yBLNV5svUDpQT9jLN0NEk%2Dh1X/edit?mode=html)
+
+
+
+
+
+
+    1.
+    For Your holy book we thank You,
+    And for all who served You well,
+    Writing, guarding, and translating,
+    That its pages might forth tell
+    Your strong love and tender care
+    For Your people everywhere.
+
+    2.
+    For Your holy book we thank You,
+    And for those who work today,
+    That the people of all nations,
+    Reading it and following may
+    Know Your love and tender care
+    For Your people everywhere.
+
+    3.
+    For Your holy book we thank You,
+    May its message be our guide,
+    May we understand the wisdom
+    Of the laws it will provide:
+    And Your love and tender care
+    For Your people everywhere.
+
+    4.
+    For Your holy book we thank You,
+    May its message in our hearts
+    Lead us now to see in Jesus
+    All the grace Your word imparts:
+    All Your love and tender care
+    For Your people everywhere.

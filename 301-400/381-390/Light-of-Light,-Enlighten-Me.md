@@ -1,0 +1,32 @@
+
+## 389.  '389. Light of Light, Enlighten Me'
+[edit](https://docs.google.com/document/d/1AkJDFdWlzwS7aBF8W3Aoxk3jz3oYPjwK/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Light of light, enlighten me,
+    Now anew the day is dawning;
+    Sun of grace, the shadows flee;
+    Brighten Thou my Sabbath morning;
+    With Thy joyous sunshine blest,
+    Happy is my day of rest.
+
+    2.
+    Let me with my heart today,
+    Holy, holy, holy, singing,
+    Rapt awhile from earth away,
+    All my soul to Thee up springing,
+    Have a foretaste inward given
+    How they worship Thee in heaven.
+
+    3.
+    Hence all care, all vanity!
+    For the day to God is holy;
+    Come, Thou glorious Majesty,
+    Deign to fill this temple lowly;
+    Nought today my soul shall move,
+    Simply resting in Thy love.

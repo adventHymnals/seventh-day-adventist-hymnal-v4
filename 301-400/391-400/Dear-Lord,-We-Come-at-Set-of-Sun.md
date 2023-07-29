@@ -1,0 +1,32 @@
+
+## 392.  '392. Dear Lord, We Come at Set of Sun'
+[edit](https://docs.google.com/document/d/13ieBNN6pbU2P2IIchmg5RoOUzzWKONzU/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Dear Lord, we come at set of sun,
+    And at Your feet we kneel
+    To worship You, Creator, King,
+    This day, Your sign and seal.
+
+    2.
+    Our earthly tasks we lay aside,
+    According to Your Word,
+    To enter now Your holy rest,
+    The Sabbath of the Lord.
+
+    3.
+    Sweet Sabbath rest, your sacred hours
+    Are as a golden chain
+    That reaches back to Eden’s gate
+    And points us home again.
+
+    4.
+    And when this earth shall be renewed,
+    And sin and death destroyed,
+    Shall all redeemed each Sabbath day
+    Still meet to praise their God.

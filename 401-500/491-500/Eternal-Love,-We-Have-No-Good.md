@@ -1,0 +1,20 @@
+
+## 496.  '496. Eternal Love, We Have No Good'
+[edit](https://docs.google.com/document/d/1Kms2StPE7yk7_tdbvUsqbV_9vnEC3DOH/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Eternal Love, we have no good to bring Thee,
+    No single good of all our hands have wrought,
+    No worthy music have we found to sing Thee,
+    No jewelled word, no quick up soaring thought.
+
+    2.
+    And yet we come; and when our faith would falter
+    Show us, O Love, the quiet place of prayer,
+    The golden censer and the golden altar,
+    And the great angel waiting for us there.

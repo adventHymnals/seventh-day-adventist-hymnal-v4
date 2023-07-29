@@ -1,0 +1,42 @@
+
+## 530.  530. It Is Well With My Soul
+[edit](https://docs.google.com/document/d/1bj3DAHgLDvNdRy3R7haJp4gj5z2hKY34/edit?mode=html)
+
+
+
+
+
+
+    1.
+    When peace, like a river, attendeth my way,
+    when sorrows like sea billows roll;
+    whatever my lot, thou hast taught me to say,
+    It is well, it is well with my soul.
+
+
+    Refrain:
+    It is well with my soul,
+    it is well, it is well with my soul.
+
+
+    2.
+    My sin–oh, the joy of this glorious thought–
+    My sin, not in part but the whole,
+    is nailed to the cross, and I bear it no more,
+    praise the Lord, praise the Lord, O my soul!
+
+
+    Refrain:
+    It is well with my soul,
+    it is well, it is well with my soul.
+
+    3.
+    And, Lord, haste the day when my faith shall be sight,
+    the clouds be rolled back as a scroll;
+    the trump shall resound, and the Lord shall descend,
+    even so, it is well with my soul.
+
+    Refrain:
+    It is well with my soul,
+    it is well, it is well with my soul.
+

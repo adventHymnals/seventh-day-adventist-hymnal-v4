@@ -1,0 +1,38 @@
+
+## 192.  192. All That Thrills My Soul
+[edit](https://docs.google.com/document/d/1rn%2DbEohtI1Gw68Q1JtDFjnQFzo%2DNw_1w/edit?mode=html)
+
+
+
+    1.
+    O Shepherd divine, I know Thou art mine;
+    Thy search in the night was for me.
+    This bleak world is cold, but warm is Thy fold;
+    My Shepherd, I follow Thee.
+    Thy beautiful lamp shineth bright o’er my way,
+    Thy glorious light unto Thy perfect day.
+    Thro’ pastures serene,
+    Thro’ valleys of green,
+    My Shepherd, I follow Thee.
+
+    2.
+    O Shepherd divine, I know Thou art mine;
+    Thy great heart was broken for me.
+    Thy grace and Thy law I picture in awe;
+    They kissed upon Calvary.
+    Ah! Life that was given to ransom my soul,
+    Ah! Heart that was broken to make sinners whole,
+    This world is but loss
+    In view of Thy cross,
+    My Shepherd, I follow Thee.
+
+    3.
+    O Shepherd divine, I know Thou art mine;
+    I hear Thee say, “Follow thou Me.”
+    Thy message today illumines my way;
+    The Spirit of Prophecy.
+    I thrill at Thy marvellous love to Thy sheep,
+    The way Thou dost lead to the still waters deep,
+    One staff and one rod,
+    One fold and one God;
+    My Shepherd, I follow Thee.

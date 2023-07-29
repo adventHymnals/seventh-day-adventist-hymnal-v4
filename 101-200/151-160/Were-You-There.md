@@ -1,0 +1,38 @@
+
+## 158.  '158. Were You There?'
+[edit](https://docs.google.com/document/d/1qDfdphmOZ6fCFKm_E9qdWaQmYrvfX229/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Were you there when they crucified my Lord?
+    Were you there when they crucified my Lord?
+    O! Sometimes it causes me to tremble, tremble, tremble.
+    Were you there when they crucified my Lord?
+
+    2.
+    Were you there when they nailed Him to the tree?
+    Were you there when they nailed Him to the tree?
+    O! Sometimes it causes me to tremble, tremble, tremble.
+    Were you there when they nailed Him to the tree?
+
+    3.
+    Were you there when they pierced Him in the side?
+    Were you there when they pierced Him in the side?
+    O! Sometimes it causes me to tremble, tremble, tremble.
+    Were you there when they pierced Him in the side?
+
+    4.
+    Were you there when the sun refused to shine?
+    Were you there when the sun refused to shine?
+    O! Sometimes it causes me to tremble, tremble, tremble.
+    Were you there when the sun refused to shine?
+
+    5.
+    Were you there when they laid Him in the tomb?
+    Were you there when they laid Him in the tomb?
+    O! Sometimes it causes me to tremble, tremble, tremble.
+    Were you there when they laid Him in the tomb?

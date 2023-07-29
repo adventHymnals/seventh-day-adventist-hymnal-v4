@@ -1,0 +1,48 @@
+
+## 546.  '546. The Lord\`s My Shepherd'
+[edit](https://docs.google.com/document/d/1bEzBQXhymQU9TraRSMxGDceVTfjYvLWc/edit?mode=html)
+
+
+
+
+
+
+    1.
+    The Lord’s my shepherd, I’ll not want
+    He makes me down to lie
+    In pastures green; he leadeth me
+    The quiet waters by.
+    He leadeth me, He leadeth me
+    The quiet waters by.
+
+    2.
+    My soul he doth restore again
+    And me to walk doth make
+    Within the paths of righteousness
+    Even for his own name’s sake.
+    Within the paths of righteousness
+    Even for his own name’s sake.
+
+    3.
+    Yea, though I walk through death’s dark vale
+    Yet will I fear no ill
+    For thou art with me, and thy rod
+    And staff me comfort still.
+    For thou art with me, and thy rod
+    And staff me comfort still.
+
+    4.
+    My table thou has furnished
+    In presence of my foes;
+    My head thou dost with oil anoint
+    And my cup overflows.
+    My head thou dost with oil anoint
+    And my cup overflows.
+
+    5.
+    Goodness and mercy all my life
+    Shall surely follow me,
+    And in God’s house for evermore
+    My dwelling-place shall be.
+    And in God’s house for evermore
+    My dwelling-place shall be.

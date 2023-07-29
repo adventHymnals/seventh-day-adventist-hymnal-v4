@@ -1,0 +1,32 @@
+
+## 293.  '293. Heavenly Father, Bless Us Now'
+[edit](https://docs.google.com/document/d/1lNcVbTyrGXmSVy6CDuf8sl0cJ9vHg1jD/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Heavenly Father, bless us now;
+    At the cross of Christ we bow;
+    Take our guilt and grief away;
+    Hear and heal us now, we pray.
+
+    2.
+    Now, O Lord, this very hour,
+    Send Thy grace and show Thy power;
+    While we rest upon Thy word,
+    Come, and bless us now, O Lord!
+
+    3.
+    Mercy now, O Lord, we plead
+    In this hour of utter need;
+    Turn us not away unblest;
+    Calm our anguish into rest.
+
+    4.
+    O Thou loving, blessed One,
+    Rising oér us like the sun,
+    Light and life art Thou within:
+    Savior, Thou, from every sin!

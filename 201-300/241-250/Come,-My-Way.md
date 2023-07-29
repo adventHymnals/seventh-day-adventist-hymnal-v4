@@ -1,0 +1,26 @@
+
+## 247.  '247. Come, My Way'
+[edit](https://docs.google.com/document/d/1o4HoXjjcS681UulLRZRrmMrAt0YvF2EZ/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Come, my Way, my Truth, my Life:
+    such a way as gives us breath,
+    such a truth as ends all strife,
+    such a life as killeth death.
+
+    2.
+    Come, my Light, my Feast, my Strength:
+    such a light as shows a feast,
+    such a feast as mends in length,
+    such a strength as makes his guest.
+
+    3.
+    Come, my Joy, my Love, my Heart:
+    such a joy as none can move,
+    such a love as none can part,
+    such a heart as joys in love.

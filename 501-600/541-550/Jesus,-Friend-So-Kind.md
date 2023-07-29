@@ -1,0 +1,24 @@
+
+## 542.  '542. Jesus, Friend So Kind'
+[edit](https://docs.google.com/document/d/1b8TghRxUmxn1V0a43nCFeCWEc1KxSesp/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Jesus, Friend, so kind and gentle,
+    Little ones we bring to Thee:
+    Grant to them Thy dearest blessing,
+    Let Thine arms around them be;
+    Now enfold them in Thy goodness,
+    From all danger keep them free.
+
+    2.
+    Thou who did receive the children
+    To Thyself so tenderly,
+    Give to all who teach and guide them
+    Wisdom and humility.
+    Vision true to keep them noble,
+    Love to serve them faithfully.

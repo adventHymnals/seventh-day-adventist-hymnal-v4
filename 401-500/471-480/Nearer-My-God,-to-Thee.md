@@ -1,0 +1,43 @@
+
+## 473.  '473. Nearer My God, to Thee'
+[edit](https://docs.google.com/document/d/1K1JHI9cwa86elbLsh2EuKUxs%2DC25toPV/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Nearer, my God, to thee, nearer to thee!
+    E’en though it be a cross that raiseth me,
+    still all my song shall be,
+    nearer, my God, to thee;
+    nearer, my God, to thee, nearer to thee!
+
+    2.
+    Though like the wanderer, the sun gone down,
+    darkness be over me, my rest a stone;
+    yet in my dreams I’d be
+    nearer, my God, to thee;
+    nearer, my God, to thee, nearer to thee!
+
+    3.
+    There let the way appear, steps unto heaven;
+    all that thou sendest me, in mercy given;
+    angels to beckon me
+    nearer, my God, to thee;
+    nearer, my God, to thee, nearer to thee!
+
+    4.
+    Then, with my waking thoughts bright with thy praise,
+    out of my stony griefs Bethel I’ll raise;
+    so by my woes to be
+    nearer, my God, to thee;
+    nearer, my God, to thee, nearer to thee!
+
+    5.
+    Or if, on joyful wing cleaving the sky,
+    sun, moon, and stars forgot, upward I fly,
+    still all my song shall be,
+    nearer, my God, to thee;
+    nearer, my God, to thee, nearer to thee!

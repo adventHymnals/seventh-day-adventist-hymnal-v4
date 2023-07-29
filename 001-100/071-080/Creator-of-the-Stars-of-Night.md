@@ -1,0 +1,27 @@
+
+## 72.  72. Creator of the Stars of Night
+[edit](https://docs.google.com/document/d/1AnHC0RXCjQIxVccIZ3fsFn5%2DQAWVbG09/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Creator of the stars of night,
+    Thy people’s everlasting light,
+    O Christ, Thou Saviour of us all,
+    We pray Thee, hear us when we call.
+
+    2.
+    At the great name of Jesus, now
+    All knees must bend, all hearts must bow;
+    And things celestial Thee shall own,
+    And things terrestrial, Lord alone.
+
+    3.
+    To God the Father, God the Son,
+    And God the Spirit, Three in One,
+    Laud, honour, might, and glory be
+    From age to age eternally.
+    Amen.

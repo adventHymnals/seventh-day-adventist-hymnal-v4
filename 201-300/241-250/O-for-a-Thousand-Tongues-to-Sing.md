@@ -1,0 +1,44 @@
+
+## 250.  250. O for a Thousand Tongues to Sing
+[edit](https://docs.google.com/document/d/1nyVRmysbrdN3YsGD%2Dn%2DOoWwQE7L1jqZP/edit?mode=html)
+
+
+
+
+
+
+    1.
+    O for a thousand tongues to sing
+    my great Redeemer’s praise,
+    the glories of my God and King,
+    the triumphs of his grace!
+
+    2.
+    My gracious Master and my God,
+    assist me to proclaim,
+    to spread through all the earth abroad
+    the honors of thy name.
+
+    3.
+    Jesus! the name that charms our fears,
+    that bids our sorrows cease;
+    ’tis music in the sinner’s ears,
+    ’tis life, and health, and peace.
+
+    4.
+    He breaks the power of canceled sin,
+    he sets the prisoner free;
+    his blood can make the foulest clean;
+    his blood availed for me.
+
+    5.
+    He speaks, and listening to his voice,
+    new life the dead receive;
+    the mournful, broken hearts rejoice,
+    the humble poor believe.
+
+    6.
+    Hear him, ye deaf; his praise, ye dumb,
+    your loosened tongues employ;
+    ye blind, behold your savior come,
+    and leap, ye lame, for joy.

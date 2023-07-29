@@ -1,0 +1,28 @@
+
+## 566.  '566. Father, We Thank You'
+[edit](https://docs.google.com/document/d/1iLZMR2PnUJQrDjI8l6RuNIhvS82m%2DTs%2D/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Father, we thank You for the light that shines all the day;
+    For the bright sky You have given most like Your heaven;
+    Father, we thank You.
+
+    2.
+    Father, we thank You for the lamps that lighten the way;
+    For human skill’s exploration of Your creation;
+    Father, we thank You.
+
+    3.
+    Father, we thank You for the friends who brighten our play;
+    For Your command to call others sisters and brothers;
+    Father, we thank You.
+
+    4.
+    Father, we thank You for Your love in Jesus today,
+    Giving us hope for tomorrow through joy and sorrow;
+    Father, we thank You.

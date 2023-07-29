@@ -1,0 +1,32 @@
+
+## 173.  '173. Good Christian Friends, Rejoice!'
+[edit](https://docs.google.com/document/d/1tWa8VWhS2Nbr8nNAG1Wp0BnE6GVkFFYu/edit?mode=html)
+
+
+
+
+
+
+    1.
+    Good Christian friends, rejoice and sing!
+    Now is the triumph of our King!
+    To all the world glad news we bring:
+    Alleluia! Alleluia! Alleluia!
+
+    2.
+    The Lord of life is risen for aye;
+    Bring flowers of song to strew His way;
+    Let all mankind rejoice and say:
+    Alleluia! Alleluia! Alleluia!
+
+    3.
+    Praise we in songs of victory
+    That love, that life which cannot die,
+    And sing with hearts uplifted high:
+    Alleluia! Alleluia! Alleluia!
+
+    4.
+    Thy name we bless, O risen Lord,
+    And sing today with one accord
+    The life laid down, the life restored:
+    Alleluia! Alleluia! Alleluia!

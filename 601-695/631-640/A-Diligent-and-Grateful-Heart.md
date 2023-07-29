@@ -1,0 +1,32 @@
+
+## 639.  639. A Diligent and Grateful Heart
+[edit](https://docs.google.com/document/d/1xr5HlNeLOT6jL8HmxwbiA50B3%2DjOxGOI/edit?mode=html)
+
+
+
+
+
+
+    1.
+    A diligent and grateful heart
+    Prompts me to sing Thy praise.
+    Thy love and mercies from the start
+    Have blessed me all my days.
+
+    2.
+    I thank Thee for the means to serve
+    With talents and with tithes,
+    For sharing brings the utmost joy
+    When lifting other lives.
+
+    3.
+    My thanks I give you for stewardship
+    To minister through deeds,
+    To serve and share with patient care
+    Thy people in their needs.
+
+    4.
+    O Lord, I dedicate my all
+    In this response to Thee.
+    Help me to magnify this call
+    In deep humility.
